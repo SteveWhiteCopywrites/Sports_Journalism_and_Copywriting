@@ -8,14 +8,14 @@ The publication accompanied the annual rugby sevens festival held in Cardiff and
 ## Interview: Gareth Thomas
 Interview with former Wales international rugby player Gareth Thomas for the Cardiff 7s Festival programme.
 
-The conversation explores Thomas’s career in professional rugby, the culture of the game and the role of rugby sevens.
+The conversation explores Thomas’s career in professional rugby, the culture of the game and the role of rugby sevens, and grassroots participation.
 
 ![Gareth Thomas interview – page 1](alfie.png)
 
 ## Interview: Dafydd James
 Interview with former Wales and British & Irish Lions centre Dafydd James for the Cardiff 7s Festival programme.
 
-The piece reflects on James’s professional rugby career, his experiences at the highest level of the game and the continuing appeal of rugby sevens events in bringing together players, supporters and the wider rugby community.
+The piece reflects on James’s professional rugby career, his experiences at the highest level of the game and the continuing appeal of rugby sevens events in bringing together players and the wider rugby community.
 
 ![Dafydd James interview – page 1](dafs1.png)
 
