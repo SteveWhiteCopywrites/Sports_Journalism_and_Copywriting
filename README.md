@@ -13,7 +13,7 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 ![ACT blog article example](Andy3.png)
 
-![ACT blog article example](Andy4.png)
+![ACT blog article example](Andy 4.png)
 
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
