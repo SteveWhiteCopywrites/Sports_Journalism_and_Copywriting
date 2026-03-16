@@ -12,6 +12,12 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 ![ACT blog article example](AM2.png)
 
+### Featured blog: Harnessing the power of former professional athletes in the workplace: a winning strategy for success
+[Click here](https://www.linkedin.com/pulse/harnessing-power-former-professional-athletes-workplace-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D) to see the blog on LinkedIn.
+
+
+
+
 
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
