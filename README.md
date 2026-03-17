@@ -1,4 +1,4 @@
-# Sports Copywriting
+# Sports Writing
 Examples of sports journalism including ghostwriting for elite athlete career pathway specialists, [ACT.Community](https://act.community/), and interviews and editorial work produced for the Cardiff 7s Festival programme.
 
 ## ACT Community
