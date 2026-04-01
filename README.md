@@ -72,18 +72,18 @@ Interview with former Wales and British & Irish rugby player legend Gareth Thoma
 
 The conversation explores Thomas’s career in professional rugby, the culture of the 15s game, the role of rugby sevens, and grassroots participation in both codes.
 
-![Gareth Thomas interview – page 1](alfie.png)
+<img src="images/Sevens1.png" width="600">
 
 ### Interview: Dafydd James
 Interview with former Wales and British & Irish Lions centre Dafydd James for the Cardiff 7s Festival programme.
 
 The piece reflects on James’s professional rugby career, his experiences at the elite level of the game and the continuing effectiveness of rugby sevens events in bringing together players and the wider rugby community.
 
-![Dafydd James interview – page 1](dafs1.png)
+<img src="images/Sevens2.png" width="600">
 
 ### Feature: Sevens Legends
 
 A feature profiling some of the legends of the sevens game.
 
-![Sevens legends feature](sevens.png)
+<img src="images/Sevens3.png" width="600">
 
